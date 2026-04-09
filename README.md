@@ -1,2 +1,2 @@
-# zeyn
+# Zeyn
 Ютубер • Стример • Black Russia
